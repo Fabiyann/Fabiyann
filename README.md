@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fabiyann
-- 👀 I’m interested in sleep
+- 👀 I’m interested in playing game
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on zzz
 - 📫 How to reach me @fabiyannn_a
